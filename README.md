@@ -1,0 +1,2 @@
+# premium-candle-carving-001-carved-candle-design-studio
+Stop drowning in scattered sketches, half-used wax blocks, and forgotten design ideas. Your candle carving passion deserves a dedicated command center—not a messy pile of notes.  Carved Candle Design Studio is the all-in-one Notion workspace that transforms your craft from chaotic hobby into a structured, scalable art. Organize every design, track
